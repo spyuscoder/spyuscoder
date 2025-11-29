@@ -26,6 +26,6 @@ Completely tailored websites designed to meet your exact requirements and all wo
 
 Escrow services available for secure project transactions
 
-Message us on telgram [@the414support](https://t.me/the414support) 
+Message us on telgram [@spyuscoder](https://t.me/spyuscoder) 
 
 Please note all for educational purpose only!
